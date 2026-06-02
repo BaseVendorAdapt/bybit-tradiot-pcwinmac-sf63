@@ -1,4 +1,4 @@
-# 
+# Ligero bybit trading bot scripts para Mac OS | Último bybit trading bot scripts para PC Windows. Con fuentes de precios en tiempo real y soporte de margen cruzado — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
